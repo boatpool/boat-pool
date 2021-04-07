@@ -1,3 +1,3 @@
 ## Welcome to Boat-Pool
 
-Ethusiastic supporter of Cardano
+Enthusiastic supporter of Cardano
